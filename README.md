@@ -1,2 +1,0 @@
-# thenyanta.github.io
-Website
